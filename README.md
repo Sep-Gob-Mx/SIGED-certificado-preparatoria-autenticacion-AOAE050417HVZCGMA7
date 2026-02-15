@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AOAE050417HVZCGMA7
+AOAE050417HVZCGMA7
